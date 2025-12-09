@@ -1,1 +1,0 @@
-# nelo-de-case-study
